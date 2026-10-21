@@ -1,1 +1,0 @@
-# STS-Moving-and-Storage
